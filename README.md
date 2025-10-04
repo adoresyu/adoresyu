@@ -2,7 +2,7 @@
 　 　ﾠ　　　 　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ　    　 　     ﾠ　　   　  ﾠ　 <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/4eff4c2c-429f-49d0-8443-0ca888c173d5" />
 
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          ![](https://64.media.tumblr.com/052dd4359070fc8b8eeda20e58ccdc4e/a565e23a2d8c2f19-93/s640x960/5fc0fb35af1be6fbd21655c199fae66cf9b7448b.pnj)
-      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　              　 　                  　ﾠ 　       　　         　         　       　ﾠ　　ﾠ  　　　**‿︵˓ ʚᲘ︵𐑼ɞ ˓ ︵ ͜**
+      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　              　 　                  　ﾠ 　       　　         　         　     **‿︵˓ ʚᲘ︵𐑼ɞ ˓ ︵ ͜**
       
       
       
