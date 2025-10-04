@@ -37,10 +37,8 @@
                                                                                                                                                                                                                                                                                                                                                                                                                         
    ﾠ　　　 　　 　ﾠ　　　 　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ　    　 　     ﾠ　　   　  ﾠ　  　　　 　ﾠ　    　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ　    　 　     ﾠ　　   　  ﾠ　  　<img width="750" height="100" alt="image" src="https://github.com/user-attachments/assets/0f35a119-bcd3-4671-b6f7-baa5716b5d11" />
       　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　              　 　                  　ﾠ 　       　　         　         　       　ﾠ　　ﾠ  　　
-
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　             　ﾠ　               　ﾠ　                　            　ﾠ　                   
-
-   **╰› ˗ˏˋ ꒰ 𝕴<sup>nts</sup> ꒱ ˎˊ˗**
+   **╰› ˗ˏˋ ꒰ 𝕴<sup>nts</sup> ꒱ ˎˊ˗** (currently W.I.P)
    
                                                                                                                                                                                                                                                                                                                                                                                                                         
    **𔓐𑇓 RBLX**
@@ -69,7 +67,6 @@
    ୨ৎ <sub>Silent Hill ( " " )</sub>
    
                                                                                                                                                                                                                                                                                                                                                                                                                         
-   ୨ৎ <sub>CP (creepypasta)</sub>
       
                                                                                                                                                                                                                                                                                                                                                                                                                         
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　             　ﾠ　               　ﾠ　                　            　ﾠ　                      ﾠ　 　 　ﾠ 　   ﾠ　![](https://64.media.tumblr.com/052dd4359070fc8b8eeda20e58ccdc4e/a565e23a2d8c2f19-93/s640x960/5fc0fb35af1be6fbd21655c199fae66cf9b7448b.pnj)
