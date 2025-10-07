@@ -1,80 +1,92 @@
-   ﾠ　 　 　ﾠ 　![](https://64.media.tumblr.com/3594706d0171dc70e856fa1c7addd4a6/e1363fcb45235c50-15/s640x960/aa1fd5f915e8b915416633d2dab51dbf8faf81c9.pnj)
-　 　ﾠ　　　 　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ　    　 　     ﾠ　　   　  ﾠ　 <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/4eff4c2c-429f-49d0-8443-0ca888c173d5" />
+<p align="center">
+<img width="1040" height="655" alt="tumblr_3594706d0171dc70e856fa1c7addd4a6_aa1fd5f9_640" src="https://github.com/user-attachments/assets/9161aed5-beb9-4f07-8c73-c883b5fb651f" />
+<img width="350" height="450" alt="image" src="https://github.com/user-attachments/assets/4eff4c2c-429f-49d0-8443-0ca888c173d5" 
+   width="500" 
+  height="900"
+  align="right"/>  
+<h3 align="center"><strong><u>‿︵˓ ʚᲘ︵𐑼ɞ ˓ ︵ ͜</u></strong>
+<h6 align="center">❝ 𝓗ere we go folks! ❞
+<h5 align="center">˚ .͜͝ ݃   　  𝓗ori    　   ۪۫۫𓏫   　  th𝖊y/th𝖊m
+    <h5 align="center">|   　  '0<sub>5݃</sub>   　   𓏼˚̣̣̣  ݃   　  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/bed14ea3-37d3-424d-a90a-e7ecbec77458" /><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/23daf94a-bb38-4853-afee-37369d331318" />  　  𓎢𓎡 
+      <h5 align="center">𓏴   ◟‿ ◞   　  ₍ᐢᐢ₎  　   ۠　 .  　  ℐ<sup>NFP</sup>  　  𓈒   ͜͝ | ͜͝ |།ིྀ ͝ ⠀ 　
 
-   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          ![](https://64.media.tumblr.com/052dd4359070fc8b8eeda20e58ccdc4e/a565e23a2d8c2f19-93/s640x960/5fc0fb35af1be6fbd21655c199fae66cf9b7448b.pnj)
-      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　              　 　                  　ﾠ 　       　　         　         　     **‿︵˓ ʚᲘ︵𐑼ɞ ˓ ︵ ͜**
+   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
+   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　           ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
+![](https://64.media.tumblr.com/052dd4359070fc8b8eeda20e58ccdc4e/a565e23a2d8c2f19-93/s640x960/5fc0fb35af1be6fbd21655c199fae66cf9b7448b.pnj)
+</align></ul>
+</h5>
+</h6>
+</p>
+</br>
+<img alt="image" src="https://github.com/user-attachments/assets/dabd2da2-f95d-44c1-8ec3-07ca84ec12d6"s  
+  width="500" 
+  height="750"
+  align="right"/>
+  </br>
+  </br>
+  </br>
       
-      
-      
-      
- 　 　ﾠ　    　　 　ﾠ　　　 　 　 　     　   　  　˚ .͜͝ ݃   　  _**𝓗ori**_    　   ۪۫۫𓏫   　  _thᵉy/thᵉm_ 　 　ﾠ　    　　 　ﾠ　　　 　 　 　     ﾠ　　 　  ﾠ　  　　　 　ﾠ　    　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ　    　 　     ﾠ　　 　  ﾠ　  　　　 　ﾠ　    　                      
-            　 　ﾠ　    　　 　ﾠ　　　 　 　 　     ﾠ　　 　  　ﾠ ͝ |   　  '0<sub>5݃</sub>   　   𓏼˚̣̣̣  ݃   　  pan   　  𓎢𓎡 　 　 　 　ﾠ　    　　 　ﾠ　　　 　 　 　     ﾠ　　 　  ﾠ　  　　　 　ﾠ　    　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ　    　 　     ﾠ　　 　  ﾠ　  　　　 　ﾠ　    　                   
-ﾠ　　 　  ﾠ　  　　　ﾠ　　 　 　　 ﾠ　　 ﾠ 𓏴   ◟‿ ◞   　  *₍ᐢᐢ₎*  　   ۠　 .  　  ℐ<sup>NFP</sup>  　  𓈒   ͜͝ | ͜͝ |།ིྀ ͝ ⠀ 　
+</p>
+<img alt="image" src="https://github.com/user-attachments/assets/2b1cccf6-8baa-4526-b1a4-0f8f61907cf2"   
+   align="left"
+  width="450" 
+  height="500"/>
+  </br>
+  </br>
+  </br>
 
-   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          ![](https://64.media.tumblr.com/052dd4359070fc8b8eeda20e58ccdc4e/a565e23a2d8c2f19-93/s640x960/5fc0fb35af1be6fbd21655c199fae66cf9b7448b.pnj)
-         　 　ﾠ　　　 　 　ﾠ　            　                       　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 **‿︵˓ ʚ  BYF  ɞ ˓ ︵ ͜**             　 　ﾠ　            　              　 　                  　ﾠ 　       　　         　         　 
-            
-                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          
-                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                       
-ꪔ̤̫  <sup>'m honestly very slow w/ conversations and comprehension</sup>                                                                                                                            
+<h3 align="center"><strong><u>‿︵˓ ʚ  BYF  ɞ ˓ ︵ ͜ </u></strong>
+<h6 align="center">❝ 𝐼 see one of them. ❞
+<h5 align="center">ꪔ̤̫  <sup>'m honestly very slow w/ conversations and comprehension</sup>
+<h5 align="center">ꪔ̤̫  <sup>have a habit using silly gifs and emotes</sup>                                                                                                                                   
+<h5 align="center">ꪔ̤̫  <sup>yaps too much (whether ranting or something I really like), so don't hesitate to bmf!</sup>
+<h3 align="center"><strong><u>⚠︎ DNI ˒﹚)ˎˊ˗</u></strong>
+<h5 align="center">ꪔ̤̫  <sup>BASIC DNI (proshippers, racists, homophobes, zoo, etc.)</sup>
+<h5 align="center">ꪔ̤̫  <sup>(-16) I don't mind conversing with minors, just don't be weird whenever I cosplay a certain character. Please.</sup>
+<h5 align="center">ꪔ̤̫  <sup>oversexualization</sup>
 
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-ꪔ̤̫  <sup>have a habit using silly gifs and emotes</sup>                                                                                                                                   
- 
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-ꪔ̤̫  <sup>yaps too much (whether ranting or something I really like)</sup>                                                                                                                    
-         　 　ﾠ　　　 　 　ﾠ　                                     　             **⚠︎ DNI ˒﹚)ˎˊ˗**
-            
-                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          
-                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        
-ꪔ̤̫  <sup>BASIC DNI (proshippers, racists, homophobes, zoo, etc.)</sup>
- 
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-ꪔ̤̫  <sup>I don't mind conversing with minors, just don't be weird whenever I cosplay a certain character. Please.</sup>
- 
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-ꪔ̤̫  <sup>oversexualization</sup>                                                                                                                                                                                                                                                                       
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ﾠ　　　 　　 　ﾠ　　　 　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ　    　 　     ﾠ　　   　  ﾠ　  　　　 　ﾠ　    　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ　    　 　     ﾠ　　   　  ﾠ　  　<img width="750" height="100" alt="image" src="https://github.com/user-attachments/assets/0f35a119-bcd3-4671-b6f7-baa5716b5d11" />
-      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　              　 　                  　ﾠ 　       　　         　         　       　ﾠ　　ﾠ  　　
-   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　             　ﾠ　               　ﾠ　                　            　ﾠ　                   
-   **╰› ˗ˏˋ ꒰ 𝕴<sup>nts</sup> ꒱ ˎˊ˗** (currently W.I.P)
-   
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   **𔓐𑇓 RBLX**
-   
-                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                      
-   ୨ৎ <sub>SEWH</sub>
+   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
+   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　           ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
+![](https://64.media.tumblr.com/052dd4359070fc8b8eeda20e58ccdc4e/a565e23a2d8c2f19-93/s640x960/5fc0fb35af1be6fbd21655c199fae66cf9b7448b.pnj)
+</align></ul>
+</h5>
+</h6>
+</p>
+</br>
+<h3 align="center"><strong><u>‿̩͙‿੭　∔⠀ৎ‿̩͙‿</u></strong>
+</p>
+</br>
+<img width="69" height="46" alt="image" src="https://github.com/user-attachments/assets/aadf2424-cd4a-43cf-938e-4947e94d5a23" align="center"/>
+<h6 align="center">❝ 𝓣hat's the girl on our target list. ❞ 
+<h5 align="left">ᯓᡣ𐭩 <sup>I'm usually busy with college.</sup>
+<h5 align="left">ᯓᡣ𐭩 <sup>I also do art, animations, edits on my free time (I don't take commissions yet).</sup>
+<h5 align="left">ᯓᡣ𐭩 <sup>not a fan of being pressured on doing something I don't like.</sup>
+<h5 align="left">ᯓᡣ𐭩 <sup>yes I'm a Mafioso, Itrapped, n7, and Sword enjoyer.</sup>
 
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ୨ৎ <sub>May Madness 2012</sub>
+   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
+   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　           ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
+<h6 align="center"><strong><u>╰› ˗ˏˋ ꒰ 𝕴<sup>nts</sup> ꒱ ˎˊ˗</u></strong>
+</p>
+</br>
+<img width="69" height="46" alt="image" src="https://github.com/user-attachments/assets/4c508733-74af-40e5-b5bc-12b94cb72ca5" align="center"/>
+<h5 align="left">𔓐𑇓 RBLX; <sub>SEWH</sub>, <sub>May Madness 2012</sub>, <sub>P!</sub>, <sub>4SKN</sub>, <sub>ENIGMA</sub>
+<h5 align="left">𔓐𑇓 ADD! Games; <sub>CRK</sub>୨ৎ, <sub>IDV</sub>, <sub>Honkai IMPACT + StarRail</sub>, <sub>Genshin Impact</sub>, <sub>Limbus Company</sub>, <sub>Wuthering Waves</sub>
+<h5 align="left">𔓐𑇓 COMF chars!; <sub>MAF</sub>, <sub>ITRAPPED</sub>, <sub>N7</sub>, <sub>Wool</sub>, <sub>BanHammer</sub>, <sub>Scythe</sub>, <sub>Shuri</sub>, <sub>Sword</sub>, etc..
 
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ୨ৎ <sub>P!</sub>
+   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
+   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　           ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
 
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ୨ৎ <sub>4SKN</sub>
+   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　![](https://64.media.tumblr.com/052dd4359070fc8b8eeda20e58ccdc4e/a565e23a2d8c2f19-93/s640x960/5fc0fb35af1be6fbd21655c199fae66cf9b7448b.pnj)
+</align></ul>
+</h5>
+</h6>
+</p>
+</br>
+ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
 
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ୨ৎ <sub>ARGs</sub>
-    
-   **𔓐𑇓 Horror**
-   
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ୨ৎ <sub>Halloween (all frnchs)</sub>
-   
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ୨ৎ <sub>Silent Hill ( " " )</sub>
-   
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-      
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　             　ﾠ　               　ﾠ　                　            　ﾠ　                      ﾠ　 　 　ﾠ 　   ﾠ　![](https://64.media.tumblr.com/052dd4359070fc8b8eeda20e58ccdc4e/a565e23a2d8c2f19-93/s640x960/5fc0fb35af1be6fbd21655c199fae66cf9b7448b.pnj)
-
-　 　ﾠ　　　 　 　ﾠ　　 　ﾠ　   　 　ﾠ　 　　　 　　<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/96e42027-39f8-40ce-a068-2630c9eb8398" />
-
-
-   ﾠ     　      　 　ﾠ   ﾠ　 <img width="640" height="255" alt="image" src="https://github.com/user-attachments/assets/206651c1-8664-4740-b98c-75b1fe313a56" />
-
-
-
+   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　　 　   ﾠ   ﾠ　ﾠ   ﾠ　ﾠ   <img alt="image" src="https://github.com/user-attachments/assets/96e42027-39f8-40ce-a068-2630c9eb8398" 
+   width="250" 
+   height="250" 
+   align="center"/>
+<img width="1040" height="655" alt="image" src="https://github.com/user-attachments/assets/206651c1-8664-4740-b98c-75b1fe313a56" />
+<p align="center">
