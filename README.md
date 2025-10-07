@@ -19,7 +19,7 @@
 </p>
 </br>
 <img alt="image" src="https://github.com/user-attachments/assets/dabd2da2-f95d-44c1-8ec3-07ca84ec12d6"s  
-  width="500" 
+  width="450" 
   height="650"
   align="right"/>
   </br>
@@ -29,8 +29,8 @@
 </p>
 <img alt="image" src="https://github.com/user-attachments/assets/2b1cccf6-8baa-4526-b1a4-0f8f61907cf2"   
    align="left"
-  width="450" 
-  height="500"/>
+  width="400" 
+  height="450"/>
   </br>
   </br>
   </br>
@@ -76,7 +76,7 @@
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　           ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
 
-   ﾠ　　 　    ﾠ　　 　ﾠ　    ![](https://64.media.tumblr.com/052dd4359070fc8b8eeda20e58ccdc4e/a565e23a2d8c2f19-93/s640x960/5fc0fb35af1be6fbd21655c199fae66cf9b7448b.pnj)
+   ﾠ　　 　    ﾠ　　 　ﾠ　  ![](https://64.media.tumblr.com/052dd4359070fc8b8eeda20e58ccdc4e/a565e23a2d8c2f19-93/s640x960/5fc0fb35af1be6fbd21655c199fae66cf9b7448b.pnj)
 </align></ul>
 </h5>
 </h6>
