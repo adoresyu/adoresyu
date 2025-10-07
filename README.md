@@ -70,7 +70,7 @@
 </br>
 <img width="69" height="46" alt="image" src="https://github.com/user-attachments/assets/4c508733-74af-40e5-b5bc-12b94cb72ca5" align="center"/>
 <h5 align="left">𔓐𑇓 RBLX; <sub>SEWH</sub>, <sub>May Madness 2012</sub>, <sub>P!</sub>, <sub>4SKN</sub>, <sub>ENIGMA</sub>
-<h5 align="left">𔓐𑇓 ADD! Games; <sub>CRK</sub>୨ৎ, <sub>IDV</sub>, <sub>Honkai IMPACT + StarRail</sub>, <sub>Genshin Impact</sub>, <sub>Limbus Company</sub>, <sub>Wuthering Waves</sub>
+<h5 align="left">𔓐𑇓 ADD! Games; <sub>CRK</sub>, <sub>IDV</sub>, <sub>Honkai IMPACT + StarRail</sub>, <sub>Genshin Impact</sub>, <sub>Limbus Company</sub>, <sub>Wuthering Waves</sub>
 <h5 align="left">𔓐𑇓 COMF chars!; <sub>MAF</sub>, <sub>ITRAPPED</sub>, <sub>N7</sub>, <sub>Wool</sub>, <sub>BanHammer</sub>, <sub>Scythe</sub>, <sub>Shuri</sub>, <sub>Sword</sub>, etc..
 
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
