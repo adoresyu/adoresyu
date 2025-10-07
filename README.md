@@ -39,7 +39,7 @@
 <h6 align="center">❝ 𝐼 see one of them. ❞
 <h5 align="center">ꪔ̤̫  <sup>'m honestly very slow w/ conversations and comprehension</sup>
 <h5 align="center">ꪔ̤̫  <sup>have a habit using silly gifs and emotes</sup>                                                                                                                                   
-<h5 align="center">ꪔ̤̫  <sup>yaps too much (whether ranting or something I really like), so don't hesitate to bmf!</sup>
+<h5 align="center">ꪔ̤̫  <sup>yaps too much (whether ranting or something I really like), but don't hesitate to bmf!</sup>
 <h3 align="center"><strong><u>⚠︎ DNI ˒﹚)ˎˊ˗</u></strong>
 <h5 align="center">ꪔ̤̫  <sup>BASIC DNI (proshippers, racists, homophobes, zoo, etc.)</sup>
 <h5 align="center">ꪔ̤̫  <sup>(-16) I don't mind conversing with minors, just don't be weird whenever I cosplay a certain character. Please.</sup>
@@ -59,8 +59,8 @@
 <img width="69" height="46" alt="image" src="https://github.com/user-attachments/assets/aadf2424-cd4a-43cf-938e-4947e94d5a23" align="center"/>
 <h6 align="center">❝ 𝓣hat's the girl on our target list. ❞ 
 <h5 align="left">ᯓᡣ𐭩 <sup>I'm usually busy with college.</sup>
+<h5 align="left">ᯓᡣ𐭩 <sup>yes I always fell asleep in class.</sup>
 <h5 align="left">ᯓᡣ𐭩 <sup>I also do art, animations, edits on my free time (I don't take commissions yet).</sup>
-<h5 align="left">ᯓᡣ𐭩 <sup>not a fan of being pressured on doing something I don't like.</sup>
 <h5 align="left">ᯓᡣ𐭩 <sup>yes I'm a Mafioso, Itrapped, n7, and Sword enjoyer.</sup>
 
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
