@@ -67,7 +67,9 @@
 <img width="662" height="40" alt="image" src="https://github.com/user-attachments/assets/e64c2b22-dc0c-43ae-bb51-c5bcee3d8a7d" />
 
 ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
+<img width="1000" height="662" alt="Untitled224_20251011074742" src="https://github.com/user-attachments/assets/72a9b44f-cc39-4f3b-a73e-a8fcddb9c7d5" /> <h6 align="center"> 𝓒rds to @somenamefornana, @Duvet_074, @double_fedora. 
 
-<img width="1000" height="662" alt="Untitled224_20251011074033" src="https://github.com/user-attachments/assets/c6e763f4-1191-40c5-8d15-50594e67c9a7" />
+    
+                
 <img width="800" height="148" alt="Untitled2_20251011053416" src="https://github.com/user-attachments/assets/29acc204-b48a-4717-9484-b89368130f63" />
 <p align="center">
