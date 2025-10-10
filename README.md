@@ -59,7 +59,7 @@
 <img width="69" height="46" alt="image" src="https://github.com/user-attachments/assets/aadf2424-cd4a-43cf-938e-4947e94d5a23" align="center"/>
 <h6 align="center">❝ 𝓣hat's the girl on our target list. ❞ 
 <h5 align="left">ᯓᡣ𐭩 <sup>I'm usually busy with college, yet I always fell asleep in class.</sup>
-<h5 align="left">ᯓᡣ𐭩 <sup>I'm FIL/ENG/CN.</sup>
+<h5 align="left">ᯓᡣ𐭩 <sup>FIL/ENG/CN.</sup>
 <h5 align="left">ᯓᡣ𐭩 <sup>I also do art, animations, edits on my free time (I don't take commissions yet).</sup>
 <h5 align="left">ᯓᡣ𐭩 <sup>yes I'm a Mafioso, Itrapped, n7, Clockwork and Sword enjoyer.</sup>
 
