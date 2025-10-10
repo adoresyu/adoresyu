@@ -61,7 +61,7 @@
 <h5 align="left">ᯓᡣ𐭩 <sup>I'm usually busy with college.</sup>
 <h5 align="left">ᯓᡣ𐭩 <sup>yes I always fell asleep in class.</sup>
 <h5 align="left">ᯓᡣ𐭩 <sup>I also do art, animations, edits on my free time (I don't take commissions yet).</sup>
-<h5 align="left">ᯓᡣ𐭩 <sup>yes I'm a Mafioso, Itrapped, n7, and Sword enjoyer.</sup>
+<h5 align="left">ᯓᡣ𐭩 <sup>yes I'm a Mafioso, Itrapped, n7, Clockwork and Sword enjoyer.</sup>
 
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　           ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
@@ -69,9 +69,9 @@
 </p>
 </br>
 <img width="69" height="46" alt="image" src="https://github.com/user-attachments/assets/4c508733-74af-40e5-b5bc-12b94cb72ca5" align="center"/>
-<h5 align="left">𔓐𑇓 RBLX; <sub>SEWH</sub>, <sub>May Madness 2012</sub>, <sub>P!</sub>, <sub>4SKN</sub>, <sub>ENIGMA</sub>
+<h5 align="left">𔓐𑇓 RBLX; <sub>SEWH</sub>, <sub>May Madness 2012</sub>, <sub>P!</sub>, <sub>4SKN</sub>, <sub>TPC (Termination Protocol)</sub>, <sub>ENIGMA</sub>
 <h5 align="left">𔓐𑇓 ADD! Games; <sub>CRK</sub>, <sub>IDV</sub>, <sub>Honkai IMPACT + StarRail</sub>, <sub>Genshin Impact</sub>, <sub>Limbus Company</sub>, <sub>Wuthering Waves</sub>
-<h5 align="left">𔓐𑇓 COMF chars!; <sub>MAF</sub>, <sub>ITRAPPED</sub>, <sub>N7</sub>, <sub>Wool</sub>, <sub>BanHammer</sub>, <sub>Scythe</sub>, <sub>Shuri</sub>, <sub>Sword</sub>, etc..
+<h5 align="left">𔓐𑇓 COMF chars!; <sub>MAF</sub>, <sub>ITRAPPED</sub>, <sub>N7</sub>, <sub>Wool</sub>, <sub>BanHammer</sub>, <sub>Scythe</sub>, <sub>Shuri</sub>, <sub>Sword</sub>, <sub>CLOCKWORK</sub>, <sub>AZURE</sub>, etc..
 
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　           ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
