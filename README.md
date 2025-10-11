@@ -54,7 +54,7 @@
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　           ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
    <img src=https://i.postimg.cc/wMFZ6FJk/IMG-0774.gif/>   
-   <img src=https://i.postimg.cc/wjVdGBRN/IMG-9122.gif/>
+   <img src=https://i.postimg.cc/XJzJMS9y/68.gif>
 
    
 <h5 align="center">𔓐𑇓 RBLX; <sub>SEWH</sub>, <sub>May Madness 2012</sub>, <sub>P!</sub>, <sub>4SKN</sub>, <sub>TPC (Termination Protocol)</sub>, <sub>ENIGMA</sub>, 
@@ -67,7 +67,7 @@
 <img width="662" height="40" alt="image" src="https://github.com/user-attachments/assets/e64c2b22-dc0c-43ae-bb51-c5bcee3d8a7d" />
 
 ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
-<img width="1000" height="662" alt="Untitled224_20251011074742" src="https://github.com/user-attachments/assets/72a9b44f-cc39-4f3b-a73e-a8fcddb9c7d5" /> <h6 align="center"> 𝓒rds to @somenamefornana, @Duvet_074, @double_fedora. 
+<img width="1000" height="662" alt="Untitled224_20251011074742" src="https://github.com/user-attachments/assets/72a9b44f-cc39-4f3b-a73e-a8fcddb9c7d5" /> <h6 align="center"> 𝓒rds to @somenamefornana, @Duvet_074, @double_fedora, @lavendergalactic. 
 
     
                 
