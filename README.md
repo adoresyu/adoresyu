@@ -36,7 +36,7 @@
 <h5 align="center">ꪔ̤̫  <sup>yaps too much (whether ranting or something I really like), but don't hesitate to bmf!</sup>
 <h3 align="center"><strong><u> DNI <img src=https://i.postimg.cc/gJ7X2BpH/711cbf19.gif/></u></strong>
 <h5 align="center">ꪔ̤̫  <sup>BASIC DNI (proshippers, racists, homophobes, zoo, etc.)</sup>
-<h5 align="center">ꪔ̤̫  <sup>(-16) I don't mind conversing with minors, just don't be weird whenever I cosplay a certain character. Please.</sup>
+<h5 align="center">ꪔ̤̫  <sup>I don't mind conversing with minors, just don't be weird whenever I cosplay a certain character. Please.</sup>
 <h5 align="center">ꪔ̤̫  <sup>oversexualization</sup>
 
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
