@@ -57,9 +57,9 @@
    <img src=https://i.postimg.cc/XJzJMS9y/68.gif>
 
    
-<h5 align="center">𔓐𑇓 RBLX; <sub>SEWH</sub>, <sub>May Madness 2012</sub>, <sub>P!</sub>, <sub>4SKN</sub>, <sub>TPC (Termination Protocol)</sub>, <sub>ENIGMA</sub>, 
+<h5 align="center">𔓐𑇓 RBLX; <sub>SEWH</sub>, <sub>May Madness 2012</sub>, <sub>P!</sub>, <sub>BAD THINGS</sub>, <sub>TPC (Termination Protocol)</sub>, <sub>ENIGMA</sub>, 
 <h5 align="center">𔓐𑇓 ADD! Games; <sub>CRK</sub>, <sub>IDV</sub>, <sub>Honkai IMPACT + StarRail</sub>, <sub>Genshin Impact</sub>, <sub>Limbus Company</sub>, <sub>Wuthering Waves</sub>, <sub>SDV</sub>, <sub>PJsekai</sub>, <sub>BANDORI</sub>, <sub>ISAT</sub>, <sub>Osu</sub>
-<h5 align="center">𔓐𑇓 COMF chars!; <sub>MAF</sub>, <sub>Itrapped</sub>, <sub>N7</sub>, <sub>Wool</sub>, <sub>BanHammer</sub>, <sub>Scythe</sub>, <sub>Shuri</sub>, <sub>SWORD</sub>, <sub>CLOCKWORK</sub>, <sub>AZURE</sub>, <sub>Amy (I love Amy)</sub> etc..
+<h5 align="center">𔓐𑇓 COMF chars!; <sub>MAF</sub>, <sub>Itrapped</sub>, <sub>N7</sub>, <sub>Wool</sub>, <sub>(deeply kin)ANDREW</sub>, <sub>BanHammer</sub>, <sub>Scythe</sub>, <sub>Shuri</sub>, <sub>SWORD</sub>, <sub>CLOCKWORK</sub>, <sub>AZURE</sub>, <sub>Amy (I love Amy)</sub> etc..
 
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　           ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
