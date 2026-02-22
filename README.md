@@ -44,7 +44,7 @@
 <h5 align="center">ꪔ̤̫  <sup>BASIC DNI (proshippers, racists, homophobes, zoo, etc.)</sup>
 <h5 align="center">ꪔ̤̫  <sup>I don't mind conversing with minors,
     just don't be weird whenever I cosplay a certain character. Please.</sup>
-<h5 align="center">ꪔ̤̫  <sup>oversexualization</sup>
+<h5 align="center">ꪔ̤̫  <sup>unnecessary flirt, doesn't matter if I know you or not, I'm uncomfortable and is currently healing.</sup>
 
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　           ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
