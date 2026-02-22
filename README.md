@@ -38,13 +38,13 @@
 <h5 align="center">ꪔ̤̫  <sup>very slow w/ conversations and comprehension,
     would appreciate w/ text tones and heads up!</sup>
 <h5 align="center">ꪔ̤̫  <sup>hesitant to converse first, but I get attached easily.</sup>
-<h5 align="center">ꪔ̤̫  <sup>I get emotional time to time, tend to overthink too much.</sup>
+<h5 align="center">ꪔ̤̫  <sup>I get emotional time to time and tend to overthink much, lmk if it's ever too much for you.</sup>
 <h5 align="center">ꪔ̤̫  <sup>Yaps too much (whether ranting or something I really like).</sup>
 <h3 align="center"><strong><u> DNI <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ce591819-e41c-4c47-8c46-51d4028ff1c4" /></u></strong>
 <h5 align="center">ꪔ̤̫  <sup>BASIC DNI (proshippers, racists, homophobes, zoo, etc.)</sup>
 <h5 align="center">ꪔ̤̫  <sup>I don't mind conversing with minors,
     just don't be weird whenever I cosplay a certain character. Please.</sup>
-<h5 align="center">ꪔ̤̫  <sup>unnecessary flirt, doesn't matter if I know you or not, I'm uncomfortable and is currently healing.</sup>
+<h5 align="center">ꪔ̤̫  <sup>unnecessary flirt, doesn't matter if I know you, in character or not, I'm currently healing so everything will be uncomfortable to me.</sup>
 
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　           ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
@@ -68,7 +68,7 @@
 
 
    
-<h5 align="center">𔓐𑇓 INTERESTS; <sub>SEWH</sub>, <sub>May Madness 2012</sub>, <sub>DigniZuka</sub>, <sub>P!</sub>, <sub>BAD THINGS</sub>, <sub>TPC (Termination Protocol)</sub>, <sub>The moon I rot behind</sub>, <sub>SCP Foundation (Thx Dion for yapping about the mtf for 30 minutes lol)</sub>
+<h5 align="center">𔓐𑇓 INTERESTS; <sub>SEWH</sub>, <sub>May Madness 2012</sub>, <sub>DigniZuka</sub>, <sub>P!</sub>, <sub>BAD THINGS</sub>, <sub>TPC (Termination Protocol)</sub>, <sub>The moon I rot behind</sub>, <sub>SCP Foundation (thx Dion for yapping about the mtf for 30 minutes lol)</sub>
 <h5 align="center">𔓐𑇓 ADD! Games; <sub>Honkai IMPACT + StarRail</sub>, <sub>Genshin Impact</sub>, <sub>Limbus Company</sub>, <sub>PJsekai</sub>, <sub>ISAT</sub>, 
 <h5 align="center">𔓐𑇓 COMF chars!; <sub>Maf</sub>, <sub>Itrapped</sub>, <sub>N7</sub>, <sub>ANDREW</sub>, <sub>BanHammer</sub>, <sub>ROCKET</sub>, <sub>Boombox</sub>, <sub>SWORD</sub>, <sub>CLOCKWORK</sub>, <sub>AZURE</sub>, <sub>Amy (I love Amy)</sub> etc..
 
