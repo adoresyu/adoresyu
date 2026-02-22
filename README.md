@@ -27,12 +27,8 @@
   width="550" 
   height="650"
   align="right"/>
-  </br>
-  </br>
-  </br>      
-</p>
-<img width="450" height="550" alt="image" src="https://github.com/user-attachments/assets/33bb7199-41f8-43af-aeb9-8d68f29645a9"   align="left" />
-  </br>
+  </br>    
+<img width="450" height="500" alt="image" src="https://github.com/user-attachments/assets/33bb7199-41f8-43af-aeb9-8d68f29645a9"   align="left" />
   </br>
 <h3 align="center"><strong><u><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7f86815a-083e-463a-adda-4539fe454be6" />   BYI  </u></strong>
 <h5 align="center">ꪔ̤̫  <sup>very slow w/ conversations and comprehension,
