@@ -48,7 +48,9 @@
 <p align="center">
     <img width="640" height="65" alt="image" src="https://github.com/user-attachments/assets/81c6c710-f520-42f2-8d34-e544b6bf0b78" />
 </p>
+<p align="center">
 <img width="550" height="400" alt="image" src="https://github.com/user-attachments/assets/e8471eac-715c-49a0-920d-8c6b88e4e721" />
+</p>
 <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Playfair+Display&size=15&pause=1000&color=A99E9EEE&center=true&width=435&lines=%E2%9D%9D+%F0%9D%92%B4ou+left+wounds+that+hit+the+bone.+%E2%9D%9E" alt="Typing SVG" /></a> 
 </p>
