@@ -1,8 +1,6 @@
 <p align="center">
 <img width="850" height="6" alt="image" src="https://github.com/user-attachments/assets/9e13654b-1241-4ca1-913e-9546d30e252e" />
-
 <img width="1280" height="511" alt="image" src="https://github.com/user-attachments/assets/02f0c03c-bfc3-4b0c-b3ff-ee1be8e5a031" />
-<p align="center">
 <img width="640" height="65" alt="image" src="https://github.com/user-attachments/assets/e5378db4-58bb-4e4d-8d4b-c889fcb054cc" />
 </p>　
 
@@ -10,28 +8,28 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Playfair+Display&size=15&pause=1000&color=A99E9EEE&center=true&width=435&lines=%E2%9D%9D+%F0%9D%92%9Fear+Ivan%2C+%E2%9D%9E" alt="Typing SVG" /></a>
 </p>
 <h5 align="center">⤹   　  𝒜sh 𓈒 ℒuv   　   ᛝ   　  th𝖊y   　  .ᐟ.ᐟ
-    <h5 align="center">           ◜ 𓏴  　  '0<sub>5݃</sub>   　  <img width="28" height="28" alt="image" src="https://github.com/user-attachments/assets/15cc6561-b3d4-48e0-8b76-a4bde970d372" />
+<h5 align="center">           ◜ 𓏴  　  '0<sub>5݃</sub>   　  <img width="28" height="28" alt="image" src="https://github.com/user-attachments/assets/15cc6561-b3d4-48e0-8b76-a4bde970d372" />
    　  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/bed14ea3-37d3-424d-a90a-e7ecbec77458" /><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/23daf94a-bb38-4853-afee-37369d331318" />  　    𓈒 ຼ ͜𓐇 ⤸
-      <h5 align="center">    ℘ .   　  Ი︵𐑼  　    ͜ ۪۪◞  　  ℐ<sup>NFP</sup>  　  𓈒 ⸸◞།ིྀ ͝    　  <img width="22" height="28" alt="image" src="https://github.com/user-attachments/assets/fe761b75-9dcc-4022-9d97-cd2e629cd23c" />
-
-   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
-   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　      ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     
+<h5 align="center">    ℘ .   　  Ი︵𐑼  　    ͜ ۪۪◞  　  ℐ<sup>NFP</sup>  　  𓈒 ⸸◞།ིྀ ͝    　  <img width="22" height="28" alt="image" src="https://github.com/user-attachments/assets/fe761b75-9dcc-4022-9d97-cd2e629cd23c" />
+</h5>   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
+　ﾠ　     
 <p align="center">
-    <img width="2048" height="163" alt="image" src="https://github.com/user-attachments/assets/9c5a4d5f-2d78-44ed-809a-b212d1f47077" />
-</p>　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Playfair+Display&size=15&pause=1000&color=A99E9EEE&center=true&width=435&lines=%E2%9D%9D+...%F0%9D%90%BC+made+something+for+you.+Ivan.+%E2%9D%9E" alt="Typing SVG" /></a>
-</align></ul>
-</h5>
-</h6>
+    <img width="2048" height="163" alt="image" src="https://github.com/user-attachments/assets/9c5a4d5f-2d78-44ed-809a-b212d1f47077" />        　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
 </p>
-</br>
+
+<p align="center">
+    <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Playfair+Display&size=15&pause=1000&color=A99E9EEE&center=true&width=435&lines=%E2%9D%9D+...%F0%9D%90%BC+made+something+for+you.+Ivan.+%E2%9D%9E" alt="Typing SVG" /></a>
+</p>
+
+<p align="right">
 <img alt="image" src="https://github.com/user-attachments/assets/01cfa5c6-52c4-4e5e-8e7f-df5caa58c6e1"
   width="550" 
-  height="650"
-  align="right"/>
-  </br>    
+  height="650" />
+</p>
+
+
 <img width="450" height="500" alt="image" src="https://github.com/user-attachments/assets/33bb7199-41f8-43af-aeb9-8d68f29645a9"   align="left" />
-  </br>
+
 <h3 align="center"><strong><u><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7f86815a-083e-463a-adda-4539fe454be6" />   BYI  </u></strong>
 <h5 align="center">ꪔ̤̫  <sup>very slow w/ conversations and comprehension,
     would appreciate w/ text tones and heads up!</sup>
@@ -43,9 +41,10 @@
 <h5 align="center">ꪔ̤̫  <sup>I don't mind conversing with minors,
     just don't be weird whenever I cosplay a certain character. Please.</sup>
 <h5 align="center">ꪔ̤̫  <sup>unnecessary flirt, doesn't matter if I know you, in character or not, I'm currently healing so everything will be uncomfortable to me.</sup>
-
-   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
-   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　           ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
+ ﾠ
+</h5>
+</br>ﾠ　　　 　 
+    　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
 <p align="center">
     <img width="640" height="65" alt="image" src="https://github.com/user-attachments/assets/81c6c710-f520-42f2-8d34-e544b6bf0b78" />
 </p>
