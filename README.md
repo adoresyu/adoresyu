@@ -78,16 +78,14 @@
 <p align="center">
     <img src=https://i.postimg.cc/qByrNvYr/IMG-1113.png>
 </p>
-<h6 align="center">
 <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Playfair+Display&size=15&pause=1000&color=A99E9EEE&center=true&width=435&lines=%E2%9D%9D+..%F0%9D%90%BC+found+it+through+you.+%E2%9D%9E" alt="Typing SVG" /></a>
 </p>
-</h6>
 ﾠ
 <p align="center">ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
-<img width="518" height="441" alt="image" src="https://github.com/user-attachments/assets/3643003d-d2f5-41ac-ac10-8a6399599bc0" />
+<img width="573" height="441" alt="image" src="https://github.com/user-attachments/assets/fbaa0398-a993-4b9e-8498-b13ec5520f45" />
 </p>
- <h6 align="center"> 𝓒rds to @glitchypaws, @inkbrvsh, @my3rz, @teleostuber, @Leo_Lune_03. 
+ <h6 align="center"> 𝓒rds to @glitchypaws, @inkbrvsh, @my3rz, @teleostuber, @medkitsuicide. 
 
     
                 
