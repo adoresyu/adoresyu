@@ -6,7 +6,9 @@
 <img width="640" height="65" alt="image" src="https://github.com/user-attachments/assets/e5378db4-58bb-4e4d-8d4b-c889fcb054cc" />
 </p>　
 
-<h6 align="center"><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/2c25d3d4-033a-44fa-9453-e77ab369d372" />   ❝ 𝒟ear Ivan, ❞ 
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Playfair+Display&size=15&pause=1000&color=A99E9EEE&center=true&width=435&lines=%E2%9D%9D+%F0%9D%92%9Fear+Ivan%2C+%E2%9D%9E" alt="Typing SVG" /></a>
+</p>
 <h5 align="center">⤹   　  𝒜sh 𓈒 ℒuv   　   ᛝ   　  th𝖊y   　  .ᐟ.ᐟ
     <h5 align="center">           ◜ 𓏴  　  '0<sub>5݃</sub>   　  <img width="28" height="28" alt="image" src="https://github.com/user-attachments/assets/15cc6561-b3d4-48e0-8b76-a4bde970d372" />
    　  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/bed14ea3-37d3-424d-a90a-e7ecbec77458" /><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/23daf94a-bb38-4853-afee-37369d331318" />  　    𓈒 ຼ ͜𓐇 ⤸
@@ -17,7 +19,7 @@
 <p align="center">
     <img width="2048" height="163" alt="image" src="https://github.com/user-attachments/assets/9c5a4d5f-2d78-44ed-809a-b212d1f47077" />
 </p>　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
-<h6 align="center">   ❝ ...𝐼 made something for you. Ivan. ❞ 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Playfair+Display&size=15&pause=1000&color=A99E9EEE&center=true&width=435&lines=%E2%9D%9D+...%F0%9D%90%BC+made+something+for+you.+Ivan.+%E2%9D%9E" alt="Typing SVG" /></a>
 </align></ul>
 </h5>
 </h6>
@@ -48,7 +50,9 @@
     <img width="640" height="65" alt="image" src="https://github.com/user-attachments/assets/81c6c710-f520-42f2-8d34-e544b6bf0b78" />
 </p>
 <img width="550" height="400" alt="image" src="https://github.com/user-attachments/assets/e8471eac-715c-49a0-920d-8c6b88e4e721" />
-<h6 align="center">❝ 𝒴ou left wounds that hit the bone. ❞ 
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Playfair+Display&size=15&pause=1000&color=A99E9EEE&center=true&width=435&lines=%E2%9D%9D+%F0%9D%92%B4ou+left+wounds+that+hit+the+bone.+%E2%9D%9E" alt="Typing SVG" /></a> 
+</p>
 <h5 align="center">ᯓᡣ𐭩 <sup>FIL/ENG/CN.</sup>      <img src=https://i.postimg.cc/3Jfx7tMx/647d87ae.gif>
 <h5 align="center">ᯓᡣ𐭩 <sup>Programming student, technically not busy unless it's big projects.</sup>
 <h5 align="center">ᯓᡣ𐭩 <sup>Usually read on my free time, not motivated on doing my hobbies at the moment.</sup>
@@ -74,7 +78,9 @@
     <img src=https://i.postimg.cc/qByrNvYr/IMG-1113.png>
 </p>
 <h6 align="center">
-    ❝ ..𝐼 found it through you. ❞
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Playfair+Display&size=15&pause=1000&color=A99E9EEE&center=true&width=435&lines=%E2%9D%9D+..%F0%9D%90%BC+found+it+through+you.+%E2%9D%9E" alt="Typing SVG" /></a>
+</p>
 </h6>
 ﾠ
 <p align="center">ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
