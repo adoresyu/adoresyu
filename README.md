@@ -71,7 +71,7 @@
    
 <h5 align="center">𔓐𑇓 INTERESTS; <sub>SEWH</sub>, <sub>May Madness 2012</sub>, <sub>DigniZuka</sub>, <sub>P!</sub>, <sub>BAD THINGS</sub>, <sub>TPC (Termination Protocol)</sub>, <sub>The moon I rot behind</sub>, <sub>SCP Foundation (thx Dion for yapping about the mtf for 30 minutes lol), minecraft args,</sub>
 <h5 align="center">𔓐𑇓 ADD! Games; <sub>Honkai IMPACT + StarRail</sub>, <sub>Genshin Impact</sub>, <sub>Limbus Company</sub>, <sub>PJsekai</sub>, <sub>ISAT</sub>, 
-<h5 align="center">𔓐𑇓 COMF chars!; <sub>Maf</sub>, <sub>Itrapped</sub>, <sub>N7</sub>, <sub>ANDREW</sub>, <sub>BanHammer</sub>, <sub>ROCKET</sub>, <sub>Boombox</sub>, <sub>SWORD</sub>, <sub>CLOCKWORK</sub>, <sub>AZURE</sub>, etc..
+<h5 align="center">𔓐𑇓 COMF chars!; <sub>Maf</sub>, <sub>Itrapped</sub>, <sub>DOZER</sub>, <sub>John Grace</sub>, <sub>ZEN</sub>, <sub>Dr. Simon Glass</sub>, <sub>ANDREW</sub>, <sub>BanHammer</sub>, <sub>ROCKET</sub>, <sub>Boombox</sub>, <sub>SWORD</sub>, etc..
 
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
    ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　           ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          
