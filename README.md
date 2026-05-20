@@ -10,7 +10,7 @@
 </p>
 <h5 align="center">𝒜sher
 $$\quad$$
-<h5 align="center">20 ‎ ,‎‎ ‎ any‎‎ ‎ prns‎
+<h5 align="center">20 ‎ ,‎‎ ‎ they‎‎ ‎ ‎
 $$\quad$$
 <h5 align="center">c‎ ‎+ h ‎ ,‎‎ ‎ int‎‎ ‎ freely‎ ‎ -‎ ‎ whisp‎‎ ‎ preferred
 $$\quad$$
