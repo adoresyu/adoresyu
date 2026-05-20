@@ -2,7 +2,7 @@
 
 <p align="center">
 <img src=https://mocha.crd.co/assets/images/gallery23/2f251f17.gif>
-<img src="https://komarev.com/ghpvc/?username=adoresyu&label=Butter%Chicken%20&color=FF6300&style=flat" alt="adoresyu" />
+<img src="https://komarev.com/ghpvc/?username=adoresyu&label=Butter_Chicken%20&color=FF6300&style=flat" alt="adoresyu" />
 <img src=https://mocha.crd.co/assets/images/gallery23/7a2cd3de.gif>
 </p>
 <p align="center">
