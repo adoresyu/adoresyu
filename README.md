@@ -1,5 +1,5 @@
 <p align="center">
- <img src="https://media.discordapp.net/attachments/1485846154527899758/1506827766849474682/Untitled327_20260521091415.png?ex=6a0fae37&is=6a0e5cb7&hm=cd1b1c7743314ce2935e85075ee23d1a48ebf7ef692d6cdeacce61a8192ecb27&=&format=webp&quality=lossless" width="450"/>
+<img width="736" alt="Untitled327_20260521091415" src="https://github.com/user-attachments/assets/b5549f83-faf2-4cd6-84fa-8416676417d7" />
 </p>
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=adoresyu&label=⌖%20&color=2B2724&style=flat" alt="fragileflaw" />
